@@ -5,7 +5,7 @@
 - LinkedIn: [linkedin.com/in/semyon-malafeev](https://www.linkedin.com/in/semyon-malafeev/)
 - Telegram: [t.me/Malafeev_Semyon](https://t.me/Malafeev_Semyon)
 - Max: [max.ru/u/f9LHodD0cOJicUNb-9N7LrWO-1W4rKpyKPpkKsxim4anO-3vSsIBMDOYw5Y](https://max.ru/u/f9LHodD0cOJicUNb-9N7LrWO-1W4rKpyKPpkKsxim4anO-3vSsIBMDOYw5Y)
-- Тел.: +7(950)001-35-95
+- Тел.: +7(950) 001-35-95
 
 ---
 
